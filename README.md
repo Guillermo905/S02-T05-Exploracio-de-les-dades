@@ -1,0 +1,1 @@
+# S02-T05-Exploracio-de-les-dades
